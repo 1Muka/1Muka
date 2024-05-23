@@ -1,4 +1,4 @@
-## Hi there 👋
+## **Faz o que bem entender ai🤠👍**
 
 <!--
 **1Muka/1Muka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
