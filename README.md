@@ -1,11 +1,11 @@
 ## **Faz o que bem entender ai 🤠👍** 
 
-Me chamo Erich 🥝
+_Me chamo **Erich**_ 🥝
 
 📱
 
-Yo hablo español 😉
+_Yo hablo español_ 😉
 
-Veterano no FF ☸️
+_Veterano no FF_ ☸️
 
-Gosto de desenhar 📝
+_Gosto de desenhar_ 📝
